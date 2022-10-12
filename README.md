@@ -1,1 +1,1 @@
-# Masai-Project-1
+Masai School
